@@ -1,0 +1,1 @@
+echo ""[Dbeing in desipline[D[D[D[D[D[Dci[D[D[D[[[C[[C[C[C[Ciscpline[D[D[D[D[Di[C[C[C[C [D[D[D[D[D[D[D[D[D[D[D[Dliving a[C[C[C[C[C[C[C[C[C[Cd life can make a man agreat [D[D[D[D[D[[C[C[C[C[C[C[Cperson"
